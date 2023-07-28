@@ -1,4 +1,4 @@
-Chapter X: Techniques for Developing a Growth Mindset
+Techniques for Developing a Growth Mindset
 =====================================================
 
 In the journey of building a powerful personal brand, developing a growth mindset is crucial. In this chapter, we will explore techniques that can help you cultivate a growth mindset and unlock your true potential.

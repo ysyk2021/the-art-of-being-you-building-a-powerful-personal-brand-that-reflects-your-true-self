@@ -1,4 +1,4 @@
-Chapter X: Building Graphic Design and Branding Skills
+Building Graphic Design and Branding Skills
 ======================================================
 
 In today's digital age, graphic design and branding skills are essential for building a powerful personal brand that effectively communicates your true self. This chapter delves into the key techniques and strategies for developing your graphic design and branding skills, enabling you to create visually captivating and impactful personal branding materials.
