@@ -1,5 +1,4 @@
 
-
 The ongoing journey of building a powerful personal brand
 ---------------------------------------------------------
 
