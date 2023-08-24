@@ -1,5 +1,3 @@
-Chapter 6: Designing Your Visual Identity
-=========================================
 
 Designing a visual identity is an essential component of personal branding. In this chapter, we will explore the role of visual identity in personal branding, techniques for designing your visual identity, and how to build graphic design and branding skills.
 

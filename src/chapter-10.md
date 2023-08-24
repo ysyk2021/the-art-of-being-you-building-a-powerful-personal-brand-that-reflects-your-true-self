@@ -1,5 +1,3 @@
-Chapter 9: Applying Personal Branding to Professional Growth
-============================================================
 
 Personal branding is not just about building a powerful image and reputation; it can also be applied to professional growth. In this chapter, we will explore how you can use personal branding to achieve career development, set goals for professional growth, and build networking and job search skills.
 

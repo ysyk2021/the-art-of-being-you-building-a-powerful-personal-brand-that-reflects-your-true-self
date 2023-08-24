@@ -1,5 +1,3 @@
-Chapter 7: Building Your Online Presence
-========================================
 
 In today's digital age, building an online presence is crucial for personal branding. Your online presence can help you showcase your skills, expertise and personality to a wider audience and establish yourself as a thought leader in your industry.
 

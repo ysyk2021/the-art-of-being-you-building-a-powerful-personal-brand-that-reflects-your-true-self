@@ -1,5 +1,3 @@
-Building Networking and Job Search Skills
-=======================================================================================================
 
 Personal branding is not just about creating a unique image and reputation for yourself; it's also about using your personal brand to achieve professional growth. In this chapter, we will explore how to apply personal branding to building networking and job search skills.
 
