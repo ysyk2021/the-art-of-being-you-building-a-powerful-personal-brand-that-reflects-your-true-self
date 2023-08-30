@@ -8,3 +8,7 @@ Throughout this book, we will explore techniques for identifying and communicati
 Whether you are just starting out on your personal branding journey or looking to take your existing brand to the next level, this book is designed to provide you with the tools and strategies you need to succeed. By embracing your authentic self and cultivating a growth mindset, you can build a powerful personal brand that resonates with your audience and drives success.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
